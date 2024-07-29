@@ -2,7 +2,7 @@
 
  **Dead President's**
 
-  ![image](https://www.google.com/imgres?q=dead%20presidents&imgurl=https%3A%2F%2Fm.media-amazon.com%2Fimages%2FM%2FMV5BNjdhZWEzMzEtMjNhZS00OThhLWFiZWUtM2EwMWU5MWE0MDA4XkEyXkFqcGdeQXVyMTQxNzMzNDI%40._V1_.jpg&imgrefurl=https%3A%2F%2Fwww.imdb.com%2Ftitle%2Ftt0112819%2F&docid=ajSf_tkvlVW4sM&tbnid=ekAKemA2UG5BYM&vet=12ahUKEwjEj9GM9MyHAxXYMdAFHdbdBjgQM3oECBMQAA..i&w=1352&h=2000&hcb=2&ved=2ahUKEwjEj9GM9MyHAxXYMdAFHdbdBjgQM3oECBMQAA)
+  ![image](https://upload.wikimedia.org/wikipedia/en/thumb/5/5e/Dead_presidents.jpg/220px-Dead_presidents.jpg)
 
   [Trailer](https://youtu.be/P5ieIbInFpg)
 
@@ -13,7 +13,7 @@
    [Trailer](https://youtu.be/P5ieIbInFpg)
 
    **Inception**
-    ![image](https://www.google.com/imgres?q=inception&imgurl=https%3A%2F%2Fm.media-amazon.com%2Fimages%2FM%2FMV5BMTM0MjUzNjkwMl5BMl5BanBnXkFtZTcwNjY0OTk1Mw%40%40._V1_.jpg&imgrefurl=https%3A%2F%2Fwww.imdb.com%2Ftitle%2Ftt1375666%2F&docid=xTQ-svvkUc9QrM&tbnid=PRKwIG1q_L0d5M&vet=12ahUKEwj3pOOo9MyHAxXG_skDHQEoGwUQM3oECF4QAA..i&w=1404&h=2048&hcb=2&ved=2ahUKEwj3pOOo9MyHAxXG_skDHQEoGwUQM3oECF4QAA)
+    ![image](https://www.google.com/imgres?q=inception&imgurl=https%3A%2F%2Fresizing.flixster.com%2F-XZAfHZM39UwaGJIFWKAE8fS0ak%3D%2Fv3%2Ft%2Fassets%2Fp7825626_p_v8_ae.jpg&imgrefurl=https%3A%2F%2Fwww.rottentomatoes.com%2Fm%2Finception&docid=qijkzioNt6DSSM&tbnid=twpgVXhmWur00M&vet=12ahUKEwj3pOOo9MyHAxXG_skDHQEoGwUQM3oECGMQAA..i&w=960&h=1440&hcb=2&ved=2ahUKEwj3pOOo9MyHAxXG_skDHQEoGwUQM3oECGMQAA)
     [Trailer](https://youtu.be/fTRnWXXDcL4)
 
 
