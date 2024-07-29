@@ -1,6 +1,6 @@
 # my_favorite_movies
 
- **Dead President's**
+ **Dead Presidents**
 
   ![image](https://upload.wikimedia.org/wikipedia/en/thumb/5/5e/Dead_presidents.jpg/220px-Dead_presidents.jpg)
 
